@@ -4,5 +4,5 @@
   </a>
 
  <p align="center">
-misty / samantha 
+dont be myfriend im going to the psych ward!!!!!!im joking bmfbmfmbmf 
   </a>
