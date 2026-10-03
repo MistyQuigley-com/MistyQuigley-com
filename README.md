@@ -4,5 +4,5 @@
   </a>
 
  <p align="center">
--misty / samantha 
+misty / samantha 
   </a>
