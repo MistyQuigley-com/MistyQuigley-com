@@ -4,5 +4,5 @@
   </a>
 
  <p align="center">
-dont be myfriend im going to the psych ward!!!!!!im joking bmfbmfmbmf 
+misty, theythem only check main github for more - milliesaxe 
   </a>
